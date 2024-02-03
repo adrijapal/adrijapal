@@ -1,1 +1,1 @@
-### Hi there 👋 I am Adrija
+### Hi there 👋 I am Adrija Pal
